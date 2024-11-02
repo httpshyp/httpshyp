@@ -4,7 +4,7 @@
   <sub><i>give this a read , please & thanks xoxo</i></sub><br>
 <br><img width=300 src="https://imgur.com/O35CKfu.png"/>
 <br><sub>
-✦ cudds / hiding are <i>okay</i> , simply don't be weird<br>
+✦ cuddling & hiding are <i>okay</i> , simply don't be weird<br>
   ✦ ship sitting is <i>okay</i> , simply don't be weird<br>
   ✧ if a pony has ' sys ' in the name , <i>do <ins>not</ins> engage in shipping</i><br>
   ✧ if you are under the age of eighteen , <i>do not engage in shipping</i><br>
