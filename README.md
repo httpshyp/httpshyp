@@ -2,8 +2,8 @@
   <sub><i>give this a read , please & thanks</i></sub><br>
 <br><img width=300 src="https://i.postimg.cc/kMfcFxLv/IMG-1071.png"/>
 <br><sub>
-✦ poyo / mazin / etc !<br>
-  ✧ john lord x selfship/yumeshipper<br>
+✦ poyo / mazin / majin ... etc !<br>
+  ✧ lord x selfship/yumeshipper<br>
   ✦ ship sitting is <i>okay</i> , just don't be weird! i'm an adult!<br>
   ✧ if you do not specify your age in any socials, please int with caution! i'm an adult!<br>
   ✦ c + h is always welcome! i normally don't speak unless i'm with friends!! <br>
