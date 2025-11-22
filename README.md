@@ -11,6 +11,7 @@
    <br><img width=300 src="https://imgur.com/O35CKfu.png"/><br>
 ♥ interactions r 100% okay , i just hesitate a lot (help me)</i><br>
  ♥ if you'd like to be friends , please ask !! don't just friend me ... i beg. <br>
-     ♥ idc about doubles guys don't start shitting on me we all grown
+     ♥ i also have a boyfriend ...... ship sitting with me does not mean we're a couple ok. <br>
+     ♥ idc about doubles guys don't start shitting on me we all grown <br>
    <br><img width=300 src="https://i.postimg.cc/kMfcFxLv/IMG-1071.png"/>
 </p>
