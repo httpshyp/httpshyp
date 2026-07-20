@@ -2,7 +2,7 @@
   <sub><i>give this a read , please & thanks</i></sub><br>
 <br><img width=300 src="https://i.postimg.cc/kMfcFxLv/IMG-1071.png"/>
 <br><sub>
-✦ poyo / mazin / majin ... etc !<br>
+✦ poyo / mazin / majin ... 19y !<br>
   ✧ lord x selfship/yumeshipper<br>
   ✦ ship sitting is <i>okay</i> , just don't be weird! i'm an adult!<br>
   ✧ if you do not specify your age in any socials, please int with caution! i'm an adult!<br>
